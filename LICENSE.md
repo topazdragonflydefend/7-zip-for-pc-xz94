@@ -1,4 +1,4 @@
-# 
+# Get the ultimate 7-Zip for PC | 7-Zip for Windows extension with 7-Zip for PC | 7-Zip for Windows automatic Extension: encryption & solid-archives. Featuring encryption and
 
 
 
